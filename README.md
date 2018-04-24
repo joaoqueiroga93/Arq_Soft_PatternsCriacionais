@@ -1,0 +1,1 @@
+# Arq_Soft_PatternsCriacionais
